@@ -86,4 +86,87 @@ still human I bled⁣
 ⁣
 #poznań #poznan #trap #trapmusic #hitechcrime #mothnode #rapperquotes #upcomingrapper #reach #polska #djiosmopocket #trapper #trappers #undergroundhiphop #undergroundartist #undergroundmusic #undergroundrapper #underground #polskirap #polskitrap
 
-## Music Video
+## Music Video Description
+
+/// OFFICIAL DIY UNDERGROUND AV_INJECTION FOR SONG “EMERGENT” BY DIRECTOR OPERATIVE MOTHNODE OF THE HITECH CRIME CINEMATIC NARRATIVE UNIVERSE MICROLABEL⁣⁣
+
+SUBSCRIBE TO MOTHNODE ON YOUTUBE_ http://bit.ly/313tr8c
+
+/// AGENT MERCH DROP_ 
+Support the development of our independent microlabel!
+https://utip.io/mothnode/shop
+
+/// STREAM TARGETS FOR “EMERGENT”_
+SoundCloud_ https://soundcloud.com/mothnode/mothn...
+Instagram IGTV_ https://www.instagram.com/tv/B74L1RTn...
+
+/// BLACK SHEEP FOLLOW MOTHNODE_
+Linktree_ https://www.linktr.ee/mothnode
+Instagram_ https://instagram.com/mothnode
+Soundcloud_ https://soundcloud.com/mothnode
+
+/// BECOME AN AGENT OF HITECH CRIME_
+Agent Discord Server_ https://discord.gg/QH4gtDG
+
+/// FOLLOW HITECH CRIME_
+Facebook_ http://www.facebook.com/hitechcrime
+Instagram_ https://instagram.com/hitechcrime 
+
+/// COMMENT FROM THE DIRECTOR OPERATIVE_ 
+
+Live Street Ops Music Video for „Emergent” song prototype featuring Aoku techwear gear. Video and audio recording done solo in Poznań, Poland using autonomous DJI Osmo Pocket camera, edited on phone in LumaFusion app. Audio recorded raw with no corrections with AT2005 and Focusrite Scarlett Solo. Need that bloody PC workstation.⁣ Let me know what you think of the nice touch at the very end of the music video!
+⁣
+/// True agents of Hitech Crime comment with ]|[ symbol underneath to your show your flair. Stay in contact with the HQ.⁣⁣
+⁣⁣
+/// TARGET_ MOTHNODE_ Emergent⁣⁣
+/// STATUS_ Song Prototype HC_SG169
+
+/// CREATIVE OPERATIVES_
+Producer_ Helve AVR / MOTHNODE
+Creative Director_ MOTHNODE / The Void
+Camera Ops_ Autonomous / MOTHNODE
+Lyrics_ MOTHNODE
+Beat_ Griesgrammar https://www.youtube.com/channel/UCMpj...
+
+/// LYRICAL INSIGHT_
+
+i’ve been breached ⁣
+so I’ve put my shields up⁣
+nowadays all reach⁣
+i just wanna rap⁣
+⁣
+what I looked for in life’s ⁣
+what I found in trap⁣
+expression till I see bodies drop⁣
+till I see bodies drop aye⁣
+⁣
+i ran with depression ⁣
+suppressed learned a lesson ⁣
+through dancing with devils ⁣
+got honed into stun ⁣
+making it precious experience⁣
+deflected the truths were so hidden ⁣
+i snapped this back on⁣
+I’ve chosen to run into deals ⁣
+i barely contorted to shapes ⁣
+i wanted assigned to myself ⁣
+so these were the lies that I ripped ⁣
+to reveal the monster beneath⁣
+⁣
+in my skin so torn into shreds ⁣
+I emerged a new being⁣
+still human I bled⁣
+still human I bled⁣
+
+#DARKTRAP #HITECHCRIME #MOTHNODE 
+
+/// Music Video by MOTHNODE performing "Emergent"
+© ARR 2019 Hitech Crime / Helve AVR
+
+https://linktr.ee/mothnode
+
+## Promo Post
+Hi all, my name is Tim / MOTHNODE and I've been building for 2 years now something that could be described as "the Marvel Universe of Trap Music". 
+Hitech Crime is supposed to be a Cinematic Narrative Universe Microlabel where the releases will be chapters in a bigger ongoing narrative and will consist not only of the music video but cinematic short film, futura/agent vibe pieces of content and lore.
+For now I'd like to present you with a DIY music video I've done on my own in March 2020 with very limited resources (had no laptop/PC for 7 months or so). Everything you hear and see was done on a mobile, no EQ whatsoever (gonna swap out the audio on SC later on once it is mastered). 
+Recently got a better mic and finally a workstation so here we go! Can't wait to make better quality stuff! Love you all Agents and I hope you're all staying safe and not letting the world situation get to you ❤
