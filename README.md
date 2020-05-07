@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Emergent
 
 **Listen now:** 
 
@@ -9,9 +9,11 @@
 Description.
 
 
-**Title:**  / **Featuring:** 
+**Title:** Emergent  / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:**  / **Lyrics:** MOTHNODE
+
+**Beat:** Griesgrammar
 
 **Narrative Design:**
 
@@ -20,7 +22,33 @@ Description.
 ## Lyrics
 
 ```
-
+i’ve been breached ⁣
+so I’ve put my shields up⁣
+nowadays all reach⁣
+i just wanna rap⁣
+⁣
+what I looked for in life’s ⁣
+what I found in trap⁣
+expression till I see bodies drop⁣
+till I see bodies drop aye⁣
+⁣
+i ran with depression ⁣
+suppressed learned a lesson ⁣
+through dancing with devils ⁣
+got honed into stun ⁣
+making it precious experience⁣
+deflected the truths were so hidden ⁣
+i snapped this back on⁣
+I’ve chosen to run into deals ⁣
+i barely contorted to shapes ⁣
+i wanted assigned to myself ⁣
+so these were the lies that I ripped ⁣
+to reveal the monster beneath⁣
+⁣
+in my skin so torn into shreds ⁣
+I emerged a new being⁣
+still human I bled⁣
+still human I bled⁣
 
 ```
 
@@ -170,3 +198,5 @@ Hi all, my name is Tim / MOTHNODE and I've been building for 2 years now somethi
 Hitech Crime is supposed to be a Cinematic Narrative Universe Microlabel where the releases will be chapters in a bigger ongoing narrative and will consist not only of the music video but cinematic short film, futura/agent vibe pieces of content and lore.
 For now I'd like to present you with a DIY music video I've done on my own in March 2020 with very limited resources (had no laptop/PC for 7 months or so). Everything you hear and see was done on a mobile, no EQ whatsoever (gonna swap out the audio on SC later on once it is mastered). 
 Recently got a better mic and finally a workstation so here we go! Can't wait to make better quality stuff! Love you all Agents and I hope you're all staying safe and not letting the world situation get to you ❤
+
+
