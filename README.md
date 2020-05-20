@@ -199,4 +199,24 @@ Hitech Crime is supposed to be a Cinematic Narrative Universe Microlabel where t
 For now I'd like to present you with a DIY music video I've done on my own in March 2020 with very limited resources (had no laptop/PC for 7 months or so). Everything you hear and see was done on a mobile, no EQ whatsoever (gonna swap out the audio on SC later on once it is mastered). 
 Recently got a better mic and finally a workstation so here we go! Can't wait to make better quality stuff! Love you all Agents and I hope you're all staying safe and not letting the world situation get to you ❤
 
+/// OFFICIAL DIY UNDERGROUND AV_INJECTION FOR SONG “EMERGENT” BY DIRECTOR OPERATIVE MOTHNODE OF THE HITECH CRIME CINEMATIC NARRATIVE UNIVERSE MICROLABEL⁣⁣
+
+/// Audio recorded raw with no corrections with Audiotechnica AT2005 via a phone. Made in a time of major emotional crisis related to toxic relationships in my life, loss of identity, only laptop I had and a job in combination with appearance of chronic health issues and crippling anxiety. This song helped me a lot to mentally overcome my challenges and shortcomings and realize the first step of the journey of my microlabel and test out the waters. It is not perfect, rather raw just as life is. Do check out the accompanying music video - https://www.youtube.com/watch?v=nJ8CN7TcFPA also fully made on a mobile device.
+
+/// OFFICIAL DIY UNDERGROUND AV_INJECTION FOR SONG “EMERGENT” BY DIRECTOR OPERATIVE MOTHNODE OF THE HITECH CRIME CINEMATIC NARRATIVE UNIVERSE MICROLABEL⁣⁣
+
+/// Audio recorded raw with no corrections with Audiotechnica AT2005 via a phone. Made in a time of major emotional crisis related to toxic relationships in my life, loss of identity, only laptop I had and a job in combination with appearance of chronic health issues and crippling anxiety. 
+
+This song helped me a lot to mentally overcome my challenges and shortcomings and realize the first step of the journey of my microlabel and test out the waters. 
+
+It is not perfect, rather raw just as life is. Do check out the accompanying music video - https://www.youtube.com/watch?v=nJ8CN7TcFPA also fully made on a mobile device.
+
+/// Personal introduction_
+
+My name is Tim / MOTHNODE and I've been building for 2 years now something that could be described as "the Marvel Universe of Trap Music" or as people call it "Cyberpunk 2077 for Music".
+
+Hitech Crime is supposed to be a Cinematic Narrative Universe Microlabel where the releases will be transmedia chapters in a bigger ongoing narrative and will consist not only of the music video but cinematic short films, snippets, interactive digital and real life experiences as well as lore.
+
+For now I'd like to present you with what I currently have - a DIY song and video I've done in March 2020 with very limited resources (prototype HC_SG169). Recently got a better mic and finally a workstation so here we go! Can't wait to make better quality creations! Thank you for checking me out and I hope you're all staying safe and not letting the world situation get to you ❤
+
 
