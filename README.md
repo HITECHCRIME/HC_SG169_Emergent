@@ -22,29 +22,61 @@ Description.
 ## Lyrics
 
 ```
-i’ve been breached ⁣
-so I’ve put my shields up⁣
-nowadays all reach⁣
-i just wanna rap⁣
-⁣
-what I looked for in life’s ⁣
-what I found in trap⁣
+[INTRO]
+
+hitech crime
+hitech crime yaa
+hitech crime
+(i've breached)
+
+[CHORUS]
+i’ve been breached ⁣so I’ve put my shields up⁣
+nowadays all reach⁣ just wanna rap⁣
+⁣what I looked for in life’s ⁣what I found in trap⁣s
 expression till I see bodies drop⁣
 till I see bodies drop aye⁣
-⁣
+
+[VERSE}
 i ran with depression ⁣
 suppressed learned a lesson ⁣
 through dancing with devils ⁣
 got honed into stun ⁣
 making it precious experience⁣
 deflected the truths were so hidden ⁣
-i snapped this back on⁣
+i snapped the fuck on⁣
 I’ve chosen to run into deals ⁣
 i barely contorted to shapes ⁣
 i wanted assigned to myself ⁣
 so these were the lies that I ripped ⁣
 to reveal the monster beneath⁣
-⁣
+
+[SECOND CHORUS]
+in my skin so torn into shreds ⁣
+I emerged a new being⁣
+still human I bled⁣
+still human I bled⁣
+
+[CHORUS]
+i’ve been breached ⁣so I’ve put my shields up⁣
+nowadays all reach⁣ just wanna rap⁣
+⁣what I looked for in life’s ⁣what I found in trap⁣s
+expression till I see bodies drop⁣
+till I see bodies drop aye⁣
+
+[VERSE}
+i ran with depression ⁣
+suppressed learned a lesson ⁣
+through dancing with devils ⁣
+got honed into stun ⁣
+making it precious experience⁣
+deflected the truths were so hidden ⁣
+i've chosen to run ey
+i've chosen to run
+i've chosen to run shit
+run shit aye
+run aye
+
+[SECOND CHORUS]
 in my skin so torn into shreds ⁣
 I emerged a new being⁣
 still human I bled⁣
