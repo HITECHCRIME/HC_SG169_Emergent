@@ -30,12 +30,12 @@ Hitech Crime
 
 [Chorus]
 I’ve been breached ⁣so I’ve put my shields up⁣
-Nowadays all reach⁣ just wanna rap⁣
+Nowadays all reach⁣ I just wanna rap⁣
 ⁣What I looked for in life’s ⁣what I found in trap⁣s
 Expression till I see bodies drop⁣
 Till I see bodies drop aye⁣
 
-[Verse}
+[Verse]
 I ran with depression ⁣
 Suppressed learned a lesson ⁣
 Through dancing with devils ⁣
@@ -57,7 +57,7 @@ Still human I bled⁣
 
 [Chorus]
 I’ve been breached ⁣so I’ve put my shields up⁣
-Nowadays all reach⁣ just wanna rap⁣
+Nowadays all reach I⁣ just wanna rap⁣
 ⁣What I looked for in life’s ⁣what I found in trap⁣s
 Expression till I see bodies drop⁣
 Till I see bodies drop aye⁣
