@@ -13,6 +13,8 @@ Description.
 
 **Production:**  / **Lyrics:** MOTHNODE
 
+Genius: https://genius.com/Mothnode-emergent-lyrics
+
 **Beat:** Griesgrammar
 
 **Narrative Design:**
