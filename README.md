@@ -22,65 +22,64 @@ Description.
 ## Lyrics
 
 ```
-[INTRO]
+[Intro]
+Hitech Crime
+Hitech Crime yaa
+Hitech Crime
+(I've been breached)
 
-hitech crime
-hitech crime yaa
-hitech crime
-(i've breached)
+[Chorus]
+I’ve been breached ⁣so I’ve put my shields up⁣
+Nowadays all reach⁣ just wanna rap⁣
+⁣What I looked for in life’s ⁣what I found in trap⁣s
+Expression till I see bodies drop⁣
+Till I see bodies drop aye⁣
 
-[CHORUS]
-i’ve been breached ⁣so I’ve put my shields up⁣
-nowadays all reach⁣ just wanna rap⁣
-⁣what I looked for in life’s ⁣what I found in trap⁣s
-expression till I see bodies drop⁣
-till I see bodies drop aye⁣
-
-[VERSE}
-i ran with depression ⁣
-suppressed learned a lesson ⁣
-through dancing with devils ⁣
-got honed into stun ⁣
-making it precious experience⁣
-deflected the truths were so hidden ⁣
-i snapped the fuck on⁣
+[Verse}
+I ran with depression ⁣
+Suppressed learned a lesson ⁣
+Through dancing with devils ⁣
+Got honed into stun ⁣
+Making it precious experience⁣
+Deflected the truths were so hidden ⁣
+I snapped the fuck on⁣
 I’ve chosen to run into deals ⁣
-i barely contorted to shapes ⁣
-i wanted assigned to myself ⁣
-so these were the lies that I ripped ⁣
-to reveal the monster beneath⁣
+I barely contorted to shapes ⁣
+I wanted assigned to myself ⁣
+So these were the lies that I ripped ⁣
+To reveal the monster beneath⁣
 
-[SECOND CHORUS]
-in my skin so torn into shreds ⁣
+[Second Chorus]
+In my skin so torn into shreds ⁣
 I emerged a new being⁣
-still human I bled⁣
-still human I bled⁣
+Still human I bled⁣
+Still human I bled⁣
 
-[CHORUS]
-i’ve been breached ⁣so I’ve put my shields up⁣
-nowadays all reach⁣ just wanna rap⁣
-⁣what I looked for in life’s ⁣what I found in trap⁣s
-expression till I see bodies drop⁣
-till I see bodies drop aye⁣
+[Chorus]
+I’ve been breached ⁣so I’ve put my shields up⁣
+Nowadays all reach⁣ just wanna rap⁣
+⁣What I looked for in life’s ⁣what I found in trap⁣s
+Expression till I see bodies drop⁣
+Till I see bodies drop aye⁣
 
-[VERSE}
-i ran with depression ⁣
-suppressed learned a lesson ⁣
-through dancing with devils ⁣
-got honed into stun ⁣
-making it precious experience⁣
-deflected the truths were so hidden ⁣
-i've chosen to run ey
-i've chosen to run
-i've chosen to run shit
-run shit aye
-run aye
+[Verse]
+I ran with depression ⁣
+Suppressed learned a lesson ⁣
+Through dancing with devils ⁣
+Got honed into stun ⁣
+Making it precious experience⁣
+Deflected the truths were so hidden ⁣
+I've chosen to run ey
+I've chosen to run
+I've chosen to run shit
+Run shit aye
+Run aye
 
-[SECOND CHORUS]
-in my skin so torn into shreds ⁣
+[Second Chorus]
+In my skin so torn into shreds ⁣
 I emerged a new being⁣
-still human I bled⁣
-still human I bled⁣
+Still human I bled⁣
+Still human I bled⁣
 
 ```
 
