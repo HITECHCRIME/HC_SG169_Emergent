@@ -332,3 +332,48 @@ https://linktr.ee/mothnode
 ⁣
 #trap #trapmusic #hitechcrime #mothnode #rapper #polska #poznań #poznan #raper #polski #djiosmopocket #dji #osmopocket #osmo #trapper #rap #hiphop #underground #undergroundhiphop #undergroundartist #undergroundmusic #music #podziemie #undergroundrapper #polskirap #polskitrap #dark #bass #techwear #futura #agent #agents #operative #marvel #universe #alterego #musicvideo
 
+/// Cinematic Narrative Universe of @hitechcrime | Audiovisual Microlabel⁣⁣
+⁣⁣
+/// DIRECTOR OPERATIVE_ @mothnode⁣⁣
+⁣
+/// Street Music Video for „Emergent” song prototype. Video recording done solo using autonomous @djiglobal Osmo Pocket camera, edited on phone in @lumatouch app LumaFusion. Audio recorded raw with no corrections with @audiotechnica_eu AT2005 and @wearefocusrite Scarlett Solo. Need that bloody PC workstation.⁣
+⁣
+/// True agents of Hitech Crime comment with ]|[ symbol underneath to your show your flair. Stay in contact with the HQ.⁣⁣
+⁣⁣
+/// TARGET_ MOTHNODE_ Emergent⁣⁣
+/// STATUS_ Song Prototype HC_SG169⁣⁣
+⁣⁣
+/// BEAT_ Griesgrammar⁣⁣
+⁣⁣
+/// LYRICAL CONTENT_⁣⁣
+⁣⁣
+i’ve been breached ⁣
+so I’ve put my shields up⁣
+nowadays all reach⁣
+i just wanna rap⁣
+⁣
+what I looked for in life’s ⁣
+what I found in trap⁣
+expression till I see bodies drop⁣
+till I see bodies drop aye⁣
+⁣
+i ran with depression ⁣
+suppressed learned a lesson ⁣
+through dancing with devils ⁣
+got honed into stun ⁣
+making it precious experience⁣
+deflected the truths were so hidden ⁣
+i snapped this back on⁣
+I’ve chosen to run into deals ⁣
+i barely contorted to shapes ⁣
+i wanted assigned to myself ⁣
+so there were the lies that I ripped ⁣
+to reveal the monster beneath⁣
+⁣
+in my skin so torn into shreds ⁣
+I emerged a new being⁣
+still human I bled⁣
+still human I bled⁣
+⁣
+#poznań #poznan #trap #trapmusic #hitechcrime #mothnode #rapperquotes #upcomingrapper #reach #polska #djiosmopocket #trapper #trappers #undergroundhiphop #undergroundartist #undergroundmusic #undergroundrapper #underground 
+
